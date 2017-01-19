@@ -1,1 +1,1 @@
-sdjkvasdjkvvn
+Ne Bámulj!
